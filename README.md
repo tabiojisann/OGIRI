@@ -68,7 +68,4 @@ https://qiita.com/tabiojisann
 
 https://note.com/takumi_ojisan
 
-## 芸人時代のネタ動画
-
-https://www.youtube.com/watch?v=zE5FQJQIhL0&t=12s
 
